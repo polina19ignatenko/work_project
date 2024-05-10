@@ -1,1 +1,0 @@
-Snow fell in May
